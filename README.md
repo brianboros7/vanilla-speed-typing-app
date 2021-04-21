@@ -1,0 +1,1 @@
+# vanilla-speed-typing-app
